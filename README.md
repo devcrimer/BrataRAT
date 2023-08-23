@@ -129,5 +129,5 @@ Reselling, transferring, or reverse engineering the software results in permanen
 
 **CONTACT**
 
-- [TELEGRAM CHANNEL](https://t.me/brataratandroid)
+- [Channel](https://t.me/brataratandroid)
 - [@DukkeEugene](https://t.me/DukkeEUgene)
