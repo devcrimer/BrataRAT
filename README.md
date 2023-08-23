@@ -130,6 +130,6 @@ Reselling, transferring, or reverse engineering the software results in permanen
 **Please avoid insistence, as it may result in being blocked.**
 
 **CONTACT**
-
-- [Channel](https://t.me/brataratandroid)
-- [@DukkeEugene](https://t.me/DukkeEUgene)
+- [Channel I](https://t.me/nocrimeroriginal)
+- [Channel II](https://t.me/brataratandroid)
+- [Developer](https://t.me/DukkeEUgene)
